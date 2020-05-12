@@ -1,2 +1,2 @@
 # vakker
-personal projects
+aqui van mis proyectos que creo en mi tiempo libre
